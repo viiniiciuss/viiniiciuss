@@ -5,4 +5,4 @@
 - plataforman P5Js;
 - Para contato email: _00001120751044sp@al.educacao.sp.gov_
 
-https://media.giphy.com/media/LLhpt7dnUaLOTurBRz/giphy.gif?cid=790b761175ug4yuqr7c11sb2qnjqfc2j25t3pj2f0isawesv&ep=v1_gifs_search&rid=giphy.gif&ct=g
+https://media.giphy.com/media/HAIgC6tPukKJNw4MQK/giphy.gif?cid=ecf05e47slhxq8nqovojoixowg7ykx3avogvfsseg7z7egcb&ep=v1_gifs_related&rid=giphy.gif&ct=g
